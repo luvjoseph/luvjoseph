@@ -1,16 +1,21 @@
-### Hi there 👋
+<div align="center">
 
-<!--
-**luvjoseph/luvjoseph** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+  [![](https://i.postimg.cc/fTtdxFLm/division.gif)](https://www.tumblr.com/cafekitsune/741167495555301376)
+  
+  $\text{\color{#e396a3}{ do you even know who you're talkin' to?}}$
+  
+ [![](https://i.postimg.cc/VL5rzMwg/bwomp.gif)](https://www.tumblr.com/strawberrysnipes/745217812544602112)
 
-Here are some ideas to get you started:
+ $\text{\color{#edced4}{ joseph / jo! }}$
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ $\text{\color{#edced4}{ omni/pan}}$ $\text{\color{#cfc6c8}{ ☆ }}$  $\text{\color{#edced4}{ they/them }}$
+
+ $\text{\color{#edced4}{ tf2}}$ $\text{\color{#cfc6c8}{ ☆ }}$  $\text{\color{#edced4}{scott pilgrim}}$ $\text{\color{#cfc6c8}{ ☆ }}$  $\text{\color{#edced4}{mitski }}$
+
+$\text{\color{#e396a3}{ instagram: }}$ $\text{\color{#edced4}{ joriisan}}$ $\text{\color{#cfc6c8}{ ☆ }}$ $\text{\color{#e396a3}{ discord: }}$ $\text{\color{#edced4}{ luv.joseph }}$ $\text{\color{#cfc6c8}{ ☆ }}$ $\text{\color{#e396a3}{ airbuds: }}$ $\text{\color{#edced4}{ luvjoseph }}$
+
+[![](https://i.postimg.cc/fTtdxFLm/division.gif)](https://www.tumblr.com/cafekitsune/741167495555301376)
+
+[![](https://i.postimg.cc/zDCqmG4B/image.gif)](https://www.tumblr.com/strawberrysnipes/745217812544602112)
+ 
+</div>
