@@ -8,7 +8,7 @@
 
  $\text{\color{#edced4}{ joseph / jo! }}$
 
- $\text{\color{#edced4}{ omni/pan}}$ $\text{\color{#cfc6c8}{ ☆ }}$  $\text{\color{#edced4}{ they/them }}$
+ $\text{\color{#edced4}{ omni/pan}}$ $\text{\color{#cfc6c8}{ ☆ }}$  $\text{\color{#edced4}{ they/them }}$ { ☆ }}$  $\text{\color{#edced4}{ 18!! }}$
 
  $\text{\color{#edced4}{ tf2}}$ $\text{\color{#cfc6c8}{ ☆ }}$  $\text{\color{#edced4}{scott pilgrim}}$ $\text{\color{#cfc6c8}{ ☆ }}$  $\text{\color{#edced4}{mitski }}$
 
