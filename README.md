@@ -6,12 +6,11 @@
 
 <div align="center">
 
-  <img src="https://i.postimg.cc/fTtdxFLm/division.gif" width="600" height="20">  
+  <img src="https://i.postimg.cc/fTtdxFLm/division.gif" width="500" height="20">  
 
-  
   $\text{\color{#e396a3}{ do you even know who you're talkin' to?}}$
   
-  <img src="https://i.postimg.cc/VL5rzMwg/bwomp.gif" width="600" height="200">  
+  <img src="https://i.postimg.cc/VL5rzMwg/bwomp.gif" width="500" height="155">  
 
  $\text{\color{#edced4}{ joseph / jo! }}$
 
@@ -21,11 +20,11 @@
 
 $\text{\color{#e396a3}{ instagram: }}$ $\text{\color{#edced4}{ joriisan}}$ $\text{\color{#cfc6c8}{ ☆ }}$ $\text{\color{#e396a3}{ discord: }}$ $\text{\color{#edced4}{ luv.joseph }}$ $\text{\color{#cfc6c8}{ ☆ }}$ $\text{\color{#e396a3}{ airbuds: }}$ $\text{\color{#edced4}{ luvjoseph }}$
 
-  <img src="https://i.postimg.cc/fTtdxFLm/division.gif" width="600" height="20">  
+  <img src="https://i.postimg.cc/fTtdxFLm/division.gif" width="500" height="20">  
 </div>
 <div>
 <p align="center" >
-  <img src="https://i.postimg.cc/zDCqmG4B/image.gif" width="400" height="400">  
+  <img src="https://i.postimg.cc/zDCqmG4B/image.gif" width="300" height="300">  
 </p> 
 </div>
 
