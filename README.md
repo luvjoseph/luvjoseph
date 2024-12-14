@@ -1,4 +1,6 @@
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31wabxkllltqinmwe4icoek2bdem&cover_image=false&theme=default&show_offline=true&background_color=121212&interchange=false&bar_color=ed719e&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31wabxkllltqinmwe4icoek2bdem&redirect=true)
+
+
+
 <div align="center">
 
   [![](https://i.postimg.cc/fTtdxFLm/division.gif)](https://www.tumblr.com/cafekitsune/741167495555301376)
