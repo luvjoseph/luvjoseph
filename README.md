@@ -8,17 +8,17 @@
 
   <img src="https://i.postimg.cc/wMCQjxFn/image.png" width="500" height="20">  
 
-  $\text{\color{#b53f36}{ how's that bullet feel? feel good? huh?}}$
+  $\text{\color{#b53f36}{ ︻デ═一 how's that bullet feel? feel good? huh?}}$
   
   <img src="https://i.postimg.cc/yNDxvh7X/image.png" width="300" height="250">  
 
  $\text{\color{#b53f36}{ ˋજ⁀➴ certified sniper kisser ♡ }}$
  
- $\text{\color{#cf632d}{ joseph / jo! }}$
+ $\text{\color{#cf632d}{  joseph / jo!   }}$
 
- $\text{\color{#cf632d}{ 18!}}$ $\text{\color{#cfc6c8}{ ☆ }}$  $\text{\color{#cf632d}{any prns okay}}$ $\text{\color{#cfc6c8}{ ☆ }}$  $\text{\color{#cf632d}{tf2 fans int! }}$
+ $\text{\color{#cf632d}{ 18!}}$ $\text{\color{#cfc6c8}{ 𖦏 }}$  $\text{\color{#cf632d}{any prns okay}}$ $\text{\color{#cfc6c8}{ 𖦏 }}$  $\text{\color{#cf632d}{tf2 fans int! }}$
 
-$\text{\color{#b53f36}{ instagram: }}$ $\text{\color{#cf632d}{ joriisan}}$ $\text{\color{#cfc6c8}{ ☆ }}$ $\text{\color{#b53f36}{ discord: }}$ $\text{\color{#cf632d}{ luv.joseph }}$ $\text{\color{#cfc6c8}{ ☆ }}$ $\text{\color{#b53f36}{ airbuds: }}$ $\text{\color{#cf632d}{ luvjoseph }}$
+$\text{\color{#b53f36}{ instagram: }}$ $\text{\color{#cf632d}{ joriisan}}$ $\text{\color{#cfc6c8}{ 𖦏 }}$ $\text{\color{#b53f36}{ discord: }}$ $\text{\color{#cf632d}{ luv.joseph }}$ $\text{\color{#cfc6c8}{ 𖦏 }}$ $\text{\color{#b53f36}{ airbuds: }}$ $\text{\color{#cf632d}{ luvjoseph }}$
 
   <img src="https://i.postimg.cc/wMCQjxFn/image.png" width="500" height="20">  
 </div>
