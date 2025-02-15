@@ -12,7 +12,6 @@
   
   <img src="https://i.postimg.cc/CL1S5XGC/ivantill.png" width="400" height="200">  
 
-$\text{\color{#cdf7ee}{ [@jadusableismissing]([url](https://github.com/jadusableismissing))}}$ $\text{\color{#f5fffd}{ my cure ♡ }}$
  
  $\text{\color{#f5fffd}{  joseph / jo / till !   }}$
 
