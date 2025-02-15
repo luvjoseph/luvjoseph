@@ -1,25 +1,25 @@
 <p align="center" width="100%"
   
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31wabxkllltqinmwe4icoek2bdem&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=b51a00&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31wabxkllltqinmwe4icoek2bdem&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31wabxkllltqinmwe4icoek2bdem&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=c3f4ea&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31wabxkllltqinmwe4icoek2bdem&redirect=true)
 
 </p>
 
 <div align="center">
 
-  <img src="https://i.postimg.cc/wMCQjxFn/image.png" width="500" height="20">  
+  <img src="https://i.postimg.cc/qBDLKDhX/border.png" width="500" height="50">  
 
-  $\text{\color{#b53f36}{ ︻デ═一 how's that bullet feel? feel good? huh?}}$
+  $\text{\color{#cdf7ee}{ ✩ ` thank you for being the victim of my shallow emotions. '}}$
   
-  <img src="https://i.postimg.cc/yNDxvh7X/image.png" width="300" height="250">  
+  <img src="https://i.postimg.cc/CL1S5XGC/ivantill.png" width="400" height="200">  
 
- $\text{\color{#b53f36}{ ˋજ⁀➴ certified sniper kisser ♡ }}$
+$\text{\color{#cdf7ee}{ [@jadusableismissing]([url](https://github.com/jadusableismissing))}}$ $\text{\color{#f5fffd}{ my cure ♡ }}$
  
- $\text{\color{#cf632d}{  joseph / jo!   }}$
+ $\text{\color{#f5fffd}{  joseph / jo / till !   }}$
 
- $\text{\color{#cf632d}{ 18!}}$ $\text{\color{#cfc6c8}{ 𖦏 }}$  $\text{\color{#cf632d}{any prns okay}}$ $\text{\color{#cfc6c8}{ 𖦏 }}$  $\text{\color{#cf632d}{tf2 fans int! }}$
+ $\text{\color{#f5fffd}{ 18!}}$ $\text{\color{#cfc6c8}{ ♡ }}$  $\text{\color{#f5fffd}{any prns okay}}$
 
-$\text{\color{#b53f36}{ instagram: }}$ $\text{\color{#cf632d}{ joriisan}}$ $\text{\color{#cfc6c8}{ 𖦏 }}$ $\text{\color{#b53f36}{ discord: }}$ $\text{\color{#cf632d}{ luv.joseph }}$ $\text{\color{#cfc6c8}{ 𖦏 }}$ $\text{\color{#b53f36}{ airbuds: }}$ $\text{\color{#cf632d}{ luvjoseph }}$
+$\text{\color{#cdf7ee}{ instagram: }}$ $\text{\color{#f5fffd}{ joriisan}}$ $\text{\color{#cfc6c8}{ ♡ }}$ $\text{\color{#cdf7ee}{ discord: }}$ $\text{\color{#f5fffd}{ luv.joseph }}$ $\text{\color{#cfc6c8}{ ♡ }}$ $\text{\color{#cdf7ee}{ airbuds: }}$ $\text{\color{#f5fffd}{ luvjoseph }}$
 
-  <img src="https://i.postimg.cc/wMCQjxFn/image.png" width="500" height="20">  
+  <img src="https://i.postimg.cc/qBDLKDhX/border.png" width="500" height="50">  
 </div>
 
