@@ -13,7 +13,7 @@
   <img src="https://i.postimg.cc/CL1S5XGC/ivantill.png" width="400" height="200">  
 
  
- $\text{\color{#f5fffd}{  joseph / jo / till !   }}$
+ $\text{\color{#cdf7ee}{  joseph / jo / till !   }}$
 
  $\text{\color{#f5fffd}{ 18!}}$ $\text{\color{#cfc6c8}{ ♡ }}$  $\text{\color{#f5fffd}{any prns okay}}$
 
