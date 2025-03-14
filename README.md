@@ -10,7 +10,7 @@
 
   $\text{\color{#cdf7ee}{ ✩ ` thank you for being the victim of my shallow emotions. '}}$
   
-  <img src="https://i.postimg.cc/cZ1QtHb7/ivantillrentry.png" width="400" height="200">  
+  <img src="https://i.postimg.cc/GpRq6Nns/github-ivantill.png" width="400" height="200">  
 
  
  $\text{\color{#cdf7ee}{  till / joseph / jo !   }}$
