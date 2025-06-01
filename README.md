@@ -1,4 +1,3 @@
-
 <p align="center" width="100%"
   
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31wabxkllltqinmwe4icoek2bdem&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=c3f4ea&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31wabxkllltqinmwe4icoek2bdem&redirect=true)
@@ -9,17 +8,17 @@
 
   <img src="https://i.postimg.cc/qBDLKDhX/border.png" width="500" height="50">  
 
-  $\text{\color{#cdf7ee}{ ✩ ` thank you for being the victim of my shallow emotions. '}}$
+  $\text{ ✩ ` thank you for being the victim of my shallow emotions. '}$
   
   <img src="https://i.postimg.cc/jqNvMgJ6/try50ivantill.png" width="400" height="200">  
 
 
  
- $\text{\color{#cdf7ee}{  till / joseph / jo !   }}$
+ $\text{  till / joseph / jo !   }$
 
- $\text{\color{#f5fffd}{ 18!}}$ $\text{\color{#cfc6c8}{ ♡ }}$  $\text{\color{#f5fffd}{any prns okay}}$
+ $\text{ 18! ♡ any prns okay}$
 
-$\text{\color{#cdf7ee}{ instagram: }}$ $\text{\color{#f5fffd}{ joriisan}}$ $\text{\color{#cfc6c8}{ ♡ }}$ $\text{\color{#cdf7ee}{ discord: }}$ $\text{\color{#f5fffd}{ luv.joseph }}$ $\text{\color{#cfc6c8}{ ♡ }}$ $\text{\color{#cdf7ee}{ airbuds: }}$ $\text{\color{#f5fffd}{ luvjoseph }}$
+$\text{ instagram: joriisan ♡  discord:  luv.joseph  ♡  airbuds:  luvjoseph }$
 
   <img src="https://i.postimg.cc/qBDLKDhX/border.png" width="500" height="50">  
 </div>
