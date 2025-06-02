@@ -6,11 +6,11 @@
 
 <div align="center">
 
-  <img src="https://i.postimg.cc/qBDLKDhX/border.png" width="500" height="50">  
+  <img src="https://i.postimg.cc/c4Z1xmSP/gothicborder.png" width="500" height="50">  
 
   $\text{ ✩ ` thank you for being the victim of my shallow emotions. '}$
   
-  <img src="https://i.postimg.cc/jqNvMgJ6/try50ivantill.png" width="400" height="200">  
+  <img src="https://i.postimg.cc/d1k3CtHX/cofaom.webp" width="400" height="200">  
 
 
  
@@ -20,5 +20,5 @@
 
 $\text{ instagram: joriisan ♡  discord:  luv.joseph  ♡  airbuds:  luvjoseph }$
 
-  <img src="https://i.postimg.cc/qBDLKDhX/border.png" width="500" height="50">  
+  <img src="https://i.postimg.cc/c4Z1xmSP/gothicborder.png" width="500" height="50">  
 </div>
