@@ -19,7 +19,7 @@
 
  $\text{ 18! | any prns okay}$
 
-$\text{ instagram: joriisan ⠀➤ ⠀ discord:  luv.joseph  ⠀➤ ⠀ airbuds:  luvjoseph }$
+$\text{ instagram: joriisan ⠀➤ ⠀ discord:  bonktactics  ⠀➤ ⠀ airbuds:  luvjoseph }$
 
   <img src="https://i.postimg.cc/L4QvxrHx/tumblr-7d3cc444dcc7f2580fa1bf8c17703243-7f42fdf2-2048-1.png" width="555" height="45">
 </div>
