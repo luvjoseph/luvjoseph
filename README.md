@@ -8,18 +8,18 @@
 
   <img src="https://i.postimg.cc/c4Z1xmSP/gothicborder.png" width="500" height="55">  
 
-  $\text{ 💉 ` I've always felt alone. My whole life. ' 🪓}$
+ $\text{\color{#E83131}{ 💥 ` I've still got }}$ $\text{\color{#D99007}{one }}$  $\text{\color{#E83131}{thing left.}}$ $\text{\color{#D99007}{ My entire goddamn skeleton,}}$ $\text{\color{#E83131}{dickhead. ' }}$
   
-  <img src="https://i.postimg.cc/nzqXFSB1/cofaoom.png" width="400" height="200">  
+  <img src="https://i.postimg.cc/sxt6mR7w/rexsplode.png" width="400" height="250">  
 
 
  
- $\text{  till / joseph / jo !   }$
+ $\text{\color{#D99007}{  till / joseph / jo !   }}$
 
 
- $\text{ 19! | any prns okay}$
+ $\text{\color{#D99007}{ 19! | any prns okay}}$
 
-$\text{ instagram: joriisan ⠀➤ ⠀ discord:  luv.joseph  ⠀➤ ⠀ airbuds:  luvjoseph }$
+$\text{\color{#D99007}{ instagram: joriisan ⠀➤ ⠀ discord:  luv.joseph  ⠀➤ ⠀ airbuds:  luvjoseph }}$
 
   <img src="https://i.postimg.cc/c4Z1xmSP/gothicborder.png" width="500" height="55">  
 </div>
