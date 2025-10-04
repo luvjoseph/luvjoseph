@@ -19,7 +19,7 @@
 
  $\text{\color{#D99007}{ 19! | any prns okay}}$
 
-$\text{\color{#D99007}{ instagram: joriisan ⠀➤ ⠀ discord:}}$  `_rexsplode` $\text{\color{#D99007}{ ⠀➤ ⠀ airbuds:  luvjoseph }}$
+$\text{\color{#D99007}{ instagram: joriisan ⠀➤ ⠀ discord: bonktactics ⠀➤ ⠀ airbuds:  luvjoseph }}$
 
   <img src="https://i.postimg.cc/c4Z1xmSP/gothicborder.png" width="500" height="55">  
 </div>
